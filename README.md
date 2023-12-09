@@ -11,12 +11,12 @@ ang
 
 ایمیل:sarabavifard@gmail.com
 
-تویتر: @saracodic
+تویتر: @
 
-تلگرام: @saracodic
+تلگرام: @
 
-اینستاگرام:@saracodic
+اینستاگرام:@
 
-گیتهاب: @saracodic
+گیتهاب: @
 
 لینکدین: sarabavifard 
